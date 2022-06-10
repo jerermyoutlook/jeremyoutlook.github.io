@@ -1,1 +1,0 @@
-# jeremyoutlook.github.io
